@@ -22,7 +22,7 @@ No solo creo sitios web: **te acompaño en tu camino digital**, porque tu éxito
 ### 🌍 Let's connect!
 - 📧 josejavier@sanahuja.dev  
 - 🌐 [www.sanahuja.dev](https://www.sanahuja.dev)  
-- 🔗 [LinkedIn](#) | [GitHub](#) | [Twitter](#)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/josejsanahuja/) | [GitHub](https://github.com/josejaviersanahuja) 
 
 ---
 
